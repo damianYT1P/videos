@@ -1,5 +1,5 @@
 # video info
-### [Link to the video](r/mclofi-1)
+### [Link to the video](https://damianyt1p.github.io/videos/r/mclofi-1)
 ### Video ID: `J97gxn0ov-w`
 <br>
 <br>
